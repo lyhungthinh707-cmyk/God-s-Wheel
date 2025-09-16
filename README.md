@@ -1,2 +1,2 @@
 # God-s-Wheel
-bánh xe may mắn cho lớp 9A2
+bánh xe may mắn lớp 9A2
